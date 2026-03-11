@@ -1,2 +1,1 @@
 facebok.com
-redes sociales
